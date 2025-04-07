@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on github
 - 📫 You can reach me through my email Khushisharma2834@gmail.com
 - 😄 Pronouns: Khushi
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I think i am funny!😂
 
 <!---
 Khushi-Sharma-0/Khushi-Sharma-0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
